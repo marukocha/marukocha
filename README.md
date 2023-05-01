@@ -1,5 +1,5 @@
 - 👋 Hi,  saya @marukochan
-- 👀 Saya bekerja di slot online
+- 👀 Saya bekerja di slot mandiri online
 - 🌱 saya baru disini jadi mohon bimbingan nya para suhu
 - 💞️ bantu saya untuk belajar juga ya suhu suhu slot
 - 📫 yuk moga masuk di halaman 1 dong
